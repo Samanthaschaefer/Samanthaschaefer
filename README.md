@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Samanthaschaefer
+- 👀 I’m interested in  encontrar perfis para TI
+- 🌱 I’m currently learning  mais sobre o universo tech
+- 💞️ I’m looking to collaborate on  oferecendo ótimas oportunidades de emprego
+- 📫 How to reach me  acesse  meu perfil https://www.linkedin.com/in/samantha-schaefer-552a99199/
